@@ -9,7 +9,6 @@
 
 - 📫 How to reach me **rozzyrahmanda0@gmail.com**
 
-- ⚡ Fun fact **May Allah Forgive Us**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
